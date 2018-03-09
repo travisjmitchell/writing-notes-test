@@ -7,3 +7,6 @@ Here are freelance writing projects
 ## I will put my code here! Yay!
 
 All of the data here **comes from my brain** and the sources that I have talked to along the way. You can find theme [**here**](www.facebook.com).
+
+I have been to Eataly way too many times since getting to Chicago. 
+### What should I eat for dinner tonight? 
